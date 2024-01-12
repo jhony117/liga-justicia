@@ -1,0 +1,3 @@
+# Doomsday
+
+Doomsday es un supervillano ficticio que aparece en los cómics estadounidenses publicados por DC Comics, comúnmente como el enemigo más letal de Superman, así como en la Liga de la Justicia. Creado por el escritor y artista Dan Jurgens, el personaje tuvo una aparición en Superman: The Man of Steel # 17 (noviembre de 1992) e hizo su primera aparición completa en Superman: The Man of Steel # 18 (diciembre de 1992).
