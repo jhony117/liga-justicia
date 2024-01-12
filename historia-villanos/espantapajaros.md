@@ -1,0 +1,3 @@
+# El Espantapájaros
+
+El Espantapájaros (Scarecrow en inglés) (Jonathan Crane) es un supervillano ficticio que aparece en los cómics estadounidenses publicados por DC Comics. Creado por Bill Finger y Bob Kane, hizo su debut en World's Finest Comics # 3 (septiembre de 1941). El autoproclamado "Maestro del Miedo" es un ex profesor de psicología en Gotham City que utiliza una variedad de toxinas experimentales para explotar las fobias de sus víctimas. Es uno de los enemigos más perdurables y malvados de Batman también pertenece al colectivo de adversarios que conforman la galería de villanos del Caballero Oscuro.

@@ -1,0 +1,3 @@
+# Deadshot
+
+Deadshot (Floyd Lawton) (Español Tiro Muerto) es un supervillano y antihéroe que aparece en los cómics estadounidenses publicados por DC Comics. Creado por David Vern Reed y Lew Schwartz, basado en un concepto del cocreador de Batman, Bob Kane, el personaje hizo su primera aparición en Batman #59 (junio de 1950). La historia de introducción presenta a Deadshot usando armas de fuego estándar mientras usa un esmoquin, un sombrero de copa y una máscara de dominó simple.
